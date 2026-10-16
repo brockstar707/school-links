@@ -21,3 +21,10 @@ https://poki.com
 https://xbox.com/cloudgaming
 
 https://proxypal.net
+
+https://orteil.dashnet.org/cookieclicker/
+
+https://web.cloudmoonapp.com
+
+https://nzp.gay
+
