@@ -17,3 +17,5 @@ https://google.com
 https://crazygames.com
 
 https://poki.com
+
+https://xbox.com/cloudgaming
