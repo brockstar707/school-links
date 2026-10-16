@@ -15,5 +15,3 @@ https://instagram.com
 https://google.com
 
 https://crazygames.com
-
-https://science.madroid.design/ 
