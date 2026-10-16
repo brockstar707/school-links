@@ -10,3 +10,6 @@ https://chatgpt.com
 
 https://claude.ai
 
+https://instagram.com
+
+https://google.com
