@@ -13,3 +13,5 @@ https://claude.ai
 https://instagram.com
 
 https://google.com
+
+https://crazygames.com
