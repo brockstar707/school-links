@@ -18,4 +18,4 @@ https://crazygames.com
 
 https://poki.com
 
-https://xbox.com
+https://xbox.com/cloudgaming
