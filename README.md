@@ -53,6 +53,8 @@ https://poki.com
 
 https://xbox.com/cloudgaming
 
+https://play.geforcenow.com
+
 https://orteil.dashnet.org/cookieclicker/
 
 https://web.cloudmoonapp.com
