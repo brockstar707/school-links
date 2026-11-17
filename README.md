@@ -67,4 +67,3 @@ Other
 
 https://proxypal.net
 
-https://www.studocu.com/row/document/nist-international-school/math-igcse-further-math/unit-7-right-triangles-trigonometry-updated-june-2018-pages-64-66-68-73/149435723?sid=0884a3ea-bb99-4926-8d54-33bf996b02391793202292
